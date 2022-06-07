@@ -1,1 +1,1 @@
-# jenchiehlo's "jack的MAC BOOK"
+# home-computer
